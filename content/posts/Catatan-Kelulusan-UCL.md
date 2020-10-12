@@ -39,6 +39,6 @@ London, 6 September 2019, <br>
 Cahyo
 </p>
 
-![kelulusan ucl](/media/wisuda-ucl.jpg)
+![Kelulusan ucl](/media/wisuda-ucl.jpg)
 
 <!-- *Originally published by [Matej Latin](http://matejlatin.co.uk/) on [Medium](https://medium.com/design-notes/humane-typography-in-the-digital-age-9bd5c16199bd?ref=webdesignernews.com#.lygo82z0x).* -->
