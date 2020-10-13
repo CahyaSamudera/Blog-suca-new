@@ -17,7 +17,7 @@ socialImage: '/media/wika-dina.jpg'
 </p>
 
 <p style="text-align: justify;text-justify: inter-word;">
-Beberapa waktu yang lalu, kurang lebih 1 bulan yang lalu, salah satu teman baikku yang bernama Wika Kurniadai Ahmad telah melangsungkan sebuah sunnah Nabi yang sangat mulia, menikah. Mengakhiri masa kejombloannya dengan sebuah prestasi tingkat tinggi, komitmen untuk menjadi seorang suami. Hal ini tentu perlu diapresiasi mengingat masih banyak orang-orang yang seusia kami belum mempunyai keberanian untuk berkomitmen dalam sebuah hubungan rumah tangga, termasuk aku, hehehehe... 
+Beberapa waktu yang lalu, kurang lebih 2 bulan yang lalu, salah satu teman baikku yang bernama Wika Kurniadai Ahmad telah melangsungkan sebuah sunnah Nabi yang sangat mulia, menikah. Mengakhiri masa kejombloannya dengan sebuah prestasi tingkat tinggi, komitmen untuk menjadi seorang suami. Hal ini tentu perlu diapresiasi mengingat masih banyak orang-orang yang seusia kami belum mempunyai keberanian untuk berkomitmen dalam sebuah hubungan rumah tangga, termasuk aku, hehehehe... 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Oke baiklah, mari kita kembali mengapresiasi keputusan besarnya dengan menyebut namanya kembali dengan lantang: 
