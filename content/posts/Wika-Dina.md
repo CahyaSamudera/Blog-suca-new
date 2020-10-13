@@ -8,7 +8,7 @@ category: 'Curhat'
 tags:
   - 'Coretan'
   - 'Curhat'
-description: 'Tulisan ini aku buat karena aku sedang kangen dengan dua sahabat baikku, Wika dan Dina. Dulu kami bertiga sangat akrab dan suka melakukan banyak hal bersama. Sampai pada akhirnya, kita berpisah dan hidup di jalan kita masing-masing (seperti kebanyakan orang pada umumnya).'
+description: 'Tulisan ini aku buat karena aku sedang kangen dengan dua sahabat baikku, Wika dan Dina. Dulu kami bertiga sangat akrab dan suka melakukan banyak hal bersama. Sampai pada akhirnya, kami berpisah dan hidup di jalan kita masing-masing (seperti kebanyakan orang pada umumnya).'
 socialImage: '/media/wika-dina.jpg'
 ---
 
