@@ -45,13 +45,13 @@ Jujur aku tidak terlalu tahu banyak tentang Mojokerto, selain dari buku sejarah 
 Hal lain yang aku tahu tentang Mojokerto adalah dongeng dari buku sejarah yang mengatakan bahwa dulu pusat kerajaan Majapahit yang merupakan kerajaan berskala nasional kedua setelah Sriwijaya berada di kota ini. Sebuah kebanggaan tersendiri tentunya, menjadi bagian dari sejarah Nusantara yang diabadikan dalam berbagai macam buku sejarah dan diceritakan dari generasi ke generasi. Beda sekali dengan kota kelahiranku Pekalongan, yang sampai saat ini aku ga tahu dulu ada kerajaan apa disana. Tapi aku tetap bangga dengan Pekalongan, karena kota ini dijuluki “The world’s city of Batik”, sebuah predikat yang sangat owsem tentunya, yeay…...
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Kemudian dalam perjalanan sejarah perkuliahan kami di FEIS yang kemudian bermetamorfosis menjadi FEB UIN Jakarta, kami bertemu lagi dengan seorang jawa lainnya yang kemudian menjadi sahabat akrab kami. Seorang pemuda yang kebetulan parasnya jauh lebih bening daripada kami berdua. Logat ngapaknya yang khas, tidak mengurangi aura kegantengan arek Tegal yang di kemudian hari mengangkat dirinya sendiri menjadi ketua Umum IMT Ciputat ini. Mokhammad Dina, begitu nama yang tertulis di absen kelas kami. Nama Dina terkadang terasa agak janggal, karena nama ini secara umum sebenarnya lebih banyak dipakai oleh kaum perempuan. Dan mungkin karena efek dari nama yang berbau perempuan ini juga, kadang-kadang dia bersikap agak “kemayu”, wkwkwkwk… 
+Kemudian dalam perjalanan sejarah perkuliahan kami di FEIS yang kemudian bermetamorfosis menjadi FEB UIN Jakarta, kami bertemu lagi dengan seorang jawa lainnya yang kemudian menjadi sahabat akrab kami. Seorang pemuda yang kebetulan parasnya jauh lebih bening daripada kami berdua. Logat ngapaknya yang khas, tidak mengurangi aura kegantengan arek Tegal yang di kemudian hari mengangkat dirinya sendiri menjadi ketua Umum IMT Ciputat ini. Mokhammad Dina, begitu namanya tertulis di absen kelas kami. Nama Dina terkadang terasa agak janggal, karena nama ini secara umum sebenarnya lebih banyak dipakai oleh kaum perempuan. Dan mungkin karena efek dari nama yang berbau perempuan ini juga, kadang-kadang dia bersikap agak “kemayu”, wkwkwkwk… 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Tapi ada sebuah kejadian tentang nama “Dina” ini yang membuat aku menaruh hormat tinggi padanya. Suatu ketika kami sedang berada di kantor jurusan Manajemen FEB UIN Jakarta untuk melihat nilai UAS kami (ketika itu sistem AIS belum ada), kemudian ada beberapa orang mahasiswa yang tanpa merasa bersalah dan berdosa mengejek nama yang agak berbau perempuan itu karena disandingkan dengan kata Mokhammad. Mereka tidak tahu kalau orang yang sedang mereka ledek ada di belakang mereka. Dina bisa saja marah waktu itu, tapi mungkin ia menghormati Nabi Muhammad yang nama beliau juga ia sandang sehingga ia tetap tenang dan memilih untuk diam saja.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-“Hal sepele”, begitu katanya waktu itu. Sebuah sikap dewasa yang layak menuai pujian dan applause, “prok prok prok”. 
+“Hal sepele”, begitu katanya waktu itu. Sebuah sikap dewasa yang layak menuai pujian dan applause, “prok prok prok prok prok”. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Kami bertiga kemudian menjadi seperti three mas jawir yang jika berkumpul rasanya senang sekali seperti bertemu dengan saudara kandung yang dipisahkan dari bayi. Kami sering melakukan banyak hal bersama. Dari makan, nongkrong, (pura-pura) belajar, main game, dan sejumlah kegiatan ala-ala mahasiswa lainnya. 
@@ -75,16 +75,17 @@ Aku misalnya, mungkin aku tidak kuliah di Oxford seperti impianku dari dulu, ata
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Mokhammad Dina, manusia asal Tegal ini kini telah berhasil dengan bisnis GK Paymentnya dan mendulang omzet usaha bernilai milyaran rupiah perbulan. <br>
-"Selamat pagi Bosque, mohon berikan ulasan bintang 5 ya untuk aplikasi kami di Play Store dan jangan lupa untuk tingkatkan terus saldo dan transaksinya!, Thank you bosque, love you, muachhhhh!!!!!!", begitu bunyi wa darinya ketika sedang melakukan strategi pemasaran andalannya. "Jangankan bintang 5 bre, nih bintang tujuh gw kasih", jawabku sambil menunjukan gambar Poeyer 16 cap Bintang Toejoeh.
+"Selamat pagi Bosque, mohon berikan ulasan bintang 5 ya untuk aplikasi kami di Play Store dan jangan lupa untuk tingkatkan terus saldo dan transaksinya!, Thank you bosque, love you, muachhhhh!!!!!!", begitu bunyi wa darinya ketika sedang melakukan strategi pemasaran andalannya. <br>
+"Jangankan bintang 5 bre, nih bintang tujuh gw kasih", jawabku sambil menunjukan gambar Poeyer 16 cap Bintang Toejoeh.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Pun dengan Wika yang sudah sukses dengan usaha materialnya. Konon katanya bentar lagi doi mau buka cabang di Ciputat, biar ga GPPI aja yang punya cabang di Ciputat, tokonya dia juga ga mau kalah, hahaha….
+Pun dengan Wika yang sudah sukses dengan usaha toko materialnya. Konon katanya bentar lagi doi mau buka cabang di Ciputat, biar ga GPPI aja yang punya cabang di Ciputat, tokonya dia juga ga mau kalah, hahaha….
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Mengenang masa-masa itu rasanya sangat menyenangkan. Ingin rasanya aku memutar mesin waktu dan kembali kesana. Tapi kalau benar aku ingin kembali kesana, mungkin aku harus pergi menjumpai panglima Tian Feng untuk mengantarku ke ruangan tempat roda waktu kayangan berada dan membantuku kembali ke masa yang aku kehendaki seperti yang dilakukannya ketika ia ingin kembali ke masa dimana ia melihat putri Chang E untuk yang pertama kali. Pilihan lain adalah menjumpai Pak Haji Dedi Mizwar untuk meminjam teknologi lorong waktunya. Atau yang paling baru adalah pergi ke USA untuk bertemu para avengers dan meminjam time machine yang mereka ciptakan. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Tapi, lagi-lagi semua itu hanyalah angan semu yang tidak mungkin akan dapat terwujud. Yang sudah berlalu maka berarti berlalu, tak bisa kembali lagi. Kini semuanya sudah berbeda, kami yang sekarang bukanlah kami yang dulu. Apalagi setelah dua dari kami telah menikah, ya Dina dan Wika telah berhasil membina rumah tangga masing-masing, menyisakan aku sendiri yang entah kapan akan mengakhiri status kejombloanku ini, huhuhuhu....
+Tapi, lagi-lagi semua itu hanyalah angan semu yang tidak mungkin akan dapat terwujud. Yang sudah berlalu maka berarti berlalu, tak akan bisa kembali lagi. Kini semuanya sudah berbeda, kami yang sekarang bukanlah kami yang dulu. Apalagi setelah dua dari kami telah menikah. Ya, Dina dan Wika telah berhasil membina rumah tangga masing-masing, menyisakan aku sendiri yang entah kapan akan mengakhiri status kejombloanku ini, huhuhuhu....
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Berteman dengan orang yang sudah menikah tentu sangat jauh berbeda dengan berteman dengan orang yang masih melajang. Dulu saat mereka belum menikah, aku dengan gampang dan leluasa tanpa ada rasa canggung, dapat menelepon mereka malam-malam dan ngobrol panjang lebar. Kini, mau wa saja, aku harus berpikir ulang apakah wa dariku akan mengganggu mereka atau tidak. Atau jika mereka tidak terganggu apakah istri mereka tidak terganggu. Jangan-jangan mereka sedang sibuk dengan keluarganya, atau jangan-jangan mereka sedang bercinta, hahaha...
@@ -99,7 +100,7 @@ Entahlah, aku tidak tahu dengan apa yang kurasakan saat ini. Apakah aku iri kare
 Mungkin kami tidak bisa seperti dulu lagi, naik motor bertiga, begadang di tanah lapang, ngobrol ngalor-ngidul dari malam sampai pagi. Tapi kenangan-kenangan itu masih akan tersimpan rapi dalam catatan memoriku sebagai salah satu bagian termanis dalam hidupku yang akan selalu kuingat.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Semoga masih ada nasib baik dimana kami bisa berkumpul bersama-sama lagi dengan formasi lengkap, tentunya dengan pasangan kita masing-masing, Amin.
+Semoga masih ada nasib baik dimana kami bisa berkumpul bersama-sama lagi dengan formasi lengkap, tentunya dengan pasangan kami masing-masing, Amin.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Untuk Dina, kuy lah kita ngopi-ngopi! <br>

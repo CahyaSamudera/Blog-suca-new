@@ -67,13 +67,13 @@ Ya…orang-orang yang aku temui di tempat itu adalah orang-orang yang luar biasa
 Aku yang dulu berkuliah di bidang ekonomi dan tidak punya keinginan untuk menjadi guru menjadi tahu bahwa tugas seorang guru begitu berat. Membuat RPP, penilaian, soal dan jawaban, worksheet adalah sedikit dari sekian banyak tugas yang menjadi tanggung jawab seorang guru. Tapi dari mereka semua, aku belajar sedikit demi sedikit sehingga aku mampu untuk menguasai diri dan menjadi seorang pengajar yang baik.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Dan kali ini, aku ingin menyampaikan rasa terima kasihku yang tak terhingga kepada mereka atas limpahan kasih sayang, persahabatan, persaudaraan, canda tawa dan ribuan kisah yang telah kita buat bersama. Pada kesempatan ini pula, saya hendak menghaturkan maaf yang sebesar-besarnya atas segala kekhilafan, tutur kata yang tak terjaga, perilaku yang tak patut serta kesalahan-kesalahan lain yang saya lakukan selama ini.
+Dan kali ini, aku ingin menyampaikan rasa terima kasihku yang tak terhingga kepada mereka atas limpahan kasih sayang, persahabatan, persaudaraan, canda tawa dan ribuan kisah yang telah kita buat bersama. Pada kesempatan ini pula, aku hendak menghaturkan maaf yang sebesar-besarnya atas segala kekhilafan, tutur kata yang tak terjaga, perilaku yang tak patut serta kesalahan-kesalahan lain yang aku lakukan selama ini.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Sekali lagi, terima kasih semuanya, atas apa yang telah kita lalui bersama sampai detik ini. Sebuah kehormatan besar bagi saya dapat mengenal dan belajar dari engkau semua.
+Sekali lagi, terima kasih semuanya, atas apa yang telah kita lalui bersama sampai detik ini. Sebuah kehormatan besar bagiku dapat mengenal dan belajar dari engkau semua.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Sebagai penutup coretan ini, saya persembahkan sebuah puisi di bawah ini untuk engkau semua saudara-saudariku yang istimewa.
+Sebagai penutup coretan ini, aku persembahkan sebuah puisi di bawah ini untuk engkau semua saudara-saudariku yang istimewa.
 </p>
 <p><strong>RINDU</strong></p>
 <p style="text-align: justify;text-justify: inter-word;">
