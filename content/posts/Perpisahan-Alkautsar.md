@@ -8,7 +8,7 @@ category: 'Coretan'
 tags:
   - 'Coretan'
 
-description: 'Tulisan ini dibuat pada bulan September 2018 sesaat sebelum aku berangkat ke UK untuk menempuh program masterku di University College London. Tulisan ini aku buat sebagai ucapan perpisahan sekaligus ungkapan terima kasih kepada keluarga besar guru Al Kautsar 2017-2018.'
+description: 'Tulisan ini dibuat pada bulan September 2018 (sesaat sebelum aku berangkat ke UK untuk menempuh program masterku di University College London) sebagai ucapan perpisahan sekaligus ungkapan terima kasih kepada keluarga besar guru Al Kautsar 2017-2018.'
 socialImage: '/media/alkautsar.jpg'
 ---
 
